@@ -2,7 +2,7 @@
 - 👀 I’m interested in books and music and dramas
 - 🌱 I’m currently learning things i need to go on with this life
 - 💞️ I’m looking to collaborate on as many projects as possible
-- 📫 How to reach me ...
+- 📫 How to reach me connect through <a href="https://www.linkedin.com/in/jeevitha-divakar-762160258/">LinkedIn</a>
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: i'm quite lazy
 
